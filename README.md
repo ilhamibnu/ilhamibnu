@@ -1,3 +1,3 @@
 ### Hi there 👋
 ### Visit my linkedin
-linkedin.com/in/ilhamibnu/
+https://www.linkedin.com/in/ilhamibnu/
